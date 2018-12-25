@@ -9,3 +9,6 @@ Saiba mais em  [willianjusten.com.br](http://willianjusten.com.br)
 Gostou do curso? Quwr mais? Ajude com uma doação, até um café é válido.
 
 gidqdqddsqw
+
+
+paypal
